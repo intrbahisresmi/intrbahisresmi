@@ -1,0 +1,3 @@
+<h1><a href="https://n9.cl/u1qyo" title="İNTERBAHİS GİRİŞ YENİ">İNTERBAHİS GİRİŞ YENİ</a></h1>
+
+# İNTERBAHİS GİRİŞ, RESMİ BİLGİLENDİRME PLATFORMUNDASINIZ. İNTERBAHİS GÜNCEL YENİ GİRİŞ ADRESİNE YUKARIDAN ERİŞEBİLİRSİNİZ.
